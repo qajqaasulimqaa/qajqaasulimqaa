@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @qajqaasulimqaa
+- 👋 Hi, I’m Kaja
 - 👀 I’m interested in too many things, but. Arts and crafts, perfumes, 
 - 🌱 I’m currently learning CSS, HTML, JAVA and many more
 - 💞️ I’m looking to collaborate on ...
